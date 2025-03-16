@@ -1,1 +1,1 @@
-Fun codes for fun
+Fun codes
